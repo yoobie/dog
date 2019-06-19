@@ -1,4 +1,4 @@
-# The best dog
+# MY dog is BETTER
 ```
    __
 o-''|\_____/)
